@@ -1,6 +1,6 @@
 # <img src="https://img.icons8.com/nolan/64/anonymous-mask.png" alt="Anonymous Mask" width="30"/> Anonymous Philippines | Sili_Protocol.PH
 
-> **"We are Anonymous. We are Legion. We do not forgive. We do not forget. Expect us."**
+> **"We are The Silent Protocol."**
 >
 > **Localized Ethos: "Ang Boses ng Hindi Makapagsalita. Ang Lakas ng Hindi Makalaban." (The Voice of the Voiceless. The Strength of those who Cannot Fight.)**
 
